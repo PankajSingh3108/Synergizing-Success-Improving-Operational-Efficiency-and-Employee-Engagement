@@ -1,1 +1,1 @@
-# Synergizing-Success-Improving-Operational-Efficiency-and-Employee-Engagement
+# Advanced SQL Case Study – Synergizing Success
